@@ -1,1 +1,1 @@
-# egeUniVizeCozumu2021
+# egeUniDonem2VizeCozumu2021
